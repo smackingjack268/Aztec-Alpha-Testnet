@@ -1,3 +1,1 @@
 # Aztec Alpha Testnet
-
-##
