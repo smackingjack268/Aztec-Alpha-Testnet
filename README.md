@@ -1,1 +1,17 @@
 # Aztec Alpha Testnet
+
+# 
+
+# 
+
+# 
+
+# 
+
+# 
+
+# 
+
+# 
+
+# 
